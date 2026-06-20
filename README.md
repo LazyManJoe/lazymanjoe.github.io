@@ -1,4 +1,4 @@
-![IMG_0231.JPG](images/img_1781945458422_0c4a248b75391.jpeg)
+![IMG_0231.JPG](img_1781945458422_0c4a248b75391.jpeg)
 
 
 Welcome to LazyManJoe’s spot on the web!
