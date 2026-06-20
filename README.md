@@ -1,8 +1,7 @@
-# LazyManJoe
-Welcome to LazyManJoe's website.
+![IMG_0231.JPG](images/img_1781945458422_0c4a248b75391.jpeg)
 
-I am currently in the process of moving my content to a new system and it will be live soon.
 
-This is a work in progress :-)
+Welcome to LazyManJoe’s spot on the web!
 
-Please check back soon!
+I am in the process of moving my content here and it should be available soon.
+
