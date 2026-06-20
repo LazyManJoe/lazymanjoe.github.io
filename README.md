@@ -1,4 +1,4 @@
-![IMG_0231.JPG](img_0231.JPG)
+![LMJ LOGO](IMG_0231.JPG)
 
 
 Welcome to LazyManJoe’s spot on the web!
